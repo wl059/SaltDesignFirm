@@ -1,6 +1,6 @@
-## 写在前面的话
+## 我的设计作品集
 
-为了方便客户观看我的作品，我把我的作品选取了一些放在这个博客上面，上面会包含我近期做过的我比较满意的作品。另外，这上面的作品不允许在未得到我授权的情况下下载和传播，如果需要下载和传播，请微信联系我说明用途，微信号：15712994731
+为了方便客户观看我的作品，我把我的作品选取了一些放在这个博客上面，上面会包含我近期做过的我比较满意的作品。另外，这上面的作品不允许在未得到我授权的情况下下载和传播，如果需要下载和传播，联系我说明用途
 
 As some clients' advice,I set that blog which contains my recent peices.And the pieces could not be download or copy without my authorize,but if you need download or spead,please contact my by WECHAT,WECHAT number:15712994731.
 
